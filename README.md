@@ -4,4 +4,4 @@ Docero Brasil
 
 -> Link do doc
 
-https://docs.google.com/document/d/1TQe5p_ySncNmVGypf1fDCZfbmHPIgK1VFhaeK2NlsWw/edit?usp=sharing
+https://docs.google.com/document/d/1Ru_ApcyqwpgiHadwrhDeIWFGDG0PKHcfaE14IH2n0yI/edit?usp=sharing
