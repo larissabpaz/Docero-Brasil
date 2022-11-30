@@ -4,4 +4,4 @@ Docero Brasil
 
 -> Link Relatório de Usabilidade
 
-https://docs.google.com/document/d/1Ru_ApcyqwpgiHadwrhDeIWFGDG0PKHcfaE14IH2n0yI/edit?usp=sharing
+https://docs.google.com/document/d/1z50mGDsvPGFxotf4kt3nQ1npB7aqTIGhaN-ne3nM3e4/edit?usp=sharing
